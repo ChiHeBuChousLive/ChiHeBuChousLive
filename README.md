@@ -15,4 +15,4 @@ I'm a developer and researcher based in Uppsala, Sweden.
 *   **Web Engineering:** Creating scalable front-ends for AI back-ends.
 
 👇 **Let's connect:**
-[] • [LinkedIn] • []
+[] • [2631916781@qq.com] • []
